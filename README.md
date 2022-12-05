@@ -1,0 +1,20 @@
+All supporting images, photos and icons are sourced from non-credit websites.
+https://pixabay.com/photos/tropical-island-blue-ocean-beach-5074304/
+https://stocksnap.io/photo/senior-couple-SZAKISHIN7
+https://stocksnap.io/photo/family-portrait-PMFIFSSCHD
+https://pixabay.com/photos/aisle-beach-celebration-ceremony-1854077/
+https://unsplash.com/photos/k1OlQaEK2qI
+https://unsplash.com/photos/CepDpEiALqM  
+https://unsplash.com/photos/nI4aC1kaTRc
+https://unsplash.com/photos/wR11KBaB86U
+https://unsplash.com/photos/oji_NGmBI5o
+https://unsplash.com/photos/qPmKTfyVOBs
+https://unsplash.com/photos/MTSILZYVcdw
+https://unsplash.com/photos/sPnDDXNFrCI
+https://www.pexels.com/photo/mercedes-benz-parked-in-a-row-164634/
+https://www.pexels.com/search/tropical%20bike/
+https://www.pexels.com/photo/black-and-white-hardtail-bike-on-brown-road-between-trees-100582/
+https://pixabay.com/photos/magma-lava-volcano-volcanism-406818/
+https://pixabay.com/photos/buffet-korean-food-birthday-3955616/
+https://pixabay.com/photos/beach-island-ocean-sea-seascape-1836335/
+https://pixabay.com/photos/ocean-sunset-sea-red-cloud-2598037/
